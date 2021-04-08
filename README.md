@@ -11,6 +11,6 @@
   
 #### Hobbies
 - Lectura de libros
-- Desportes (futbol, voley, tenis, etc.)
+- Deportes (futbol, voley, tenis, etc.)
 - Videojuegos
 
